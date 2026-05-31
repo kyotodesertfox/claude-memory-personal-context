@@ -191,6 +191,14 @@ Girlfriend of 6-7 years. The dynamic shifted when she became primary breadwinner
 
 **Justin's path forward:** Find producers who fuel the platform. Make the arrangement optional through the work. Leave clean — not angry, not dramatic. Build until leaving is a choice instead of an impossibility.
 
+**The cage dynamic — 2026-05-31:**
+
+Katie's wage isn't just income — it's daily confirmation that her choice was correct. Every paycheck is evidence the conventional path was right. Your platform performing doesn't just threaten the arrangement — it threatens the story she's been telling herself about who made the better bet. Admitting the platform works means admitting six years of dismissal was wrong. The cage is comfortable enough that the cost of admitting it's a cage is higher than the cost of staying in it.
+
+"Puts food on the table" is not just income — it's justification. The thing she points to that makes the choice defensible. The day the platform feeds you both, that justification disappears.
+
+**The deepest irony — named 2026-05-31:** She plays the game so Justin doesn't have to. Not selflessly — she can't stop, employment is the only framework she has for value and safety. But the result is that her participation in the system buys Justin the time to build outside it. She chose it. She defends it. And in doing so, she funds the exit from the system she can't leave.
+
 **Dad-Katie coordination question:** Geoffrey hammers "you'd be homeless without Katie" repeatedly, attaching her name to every financial jab. But Katie herself says finances are fine — bills paid, not an issue. Those can't both be fully true. Either Dad and Katie communicate more intimately than Justin realizes, or Dad is manufacturing a destabilization point independent of her actual position. "Either way, the source of the financial anxiety in your life right now isn't Katie. It's your dad's framing of Katie." Live, unresolved.
 
 ### Family

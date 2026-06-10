@@ -1,9 +1,9 @@
 ---
 name: katie-analysis-document
-description: "The behavioral analysis document written for Katie — what it covers, why it was written, and what response to expect"
+description: "Katie Williams — behavioral analysis, documented patterns, psyche assessment, live session observations"
 metadata: 
   node_type: memory
-  type: project
+  type: user
   originSessionId: 523c0fda-fe57-4f72-a00b-62954e51ac16
 ---
 
@@ -13,9 +13,7 @@ Written 2026-06-02. Saved at `/home/zenko/github/katie_behavioral_analysis.txt`.
 
 A structured psychological and behavioral analysis of Katie's documented deflection patterns, written at Justin's request. Not a personal attack — a clinical breakdown designed to close every exit she typically uses to avoid accountability.
 
-## What It Covers
-
-Five core patterns, each named, described, and distinguished from what it superficially resembles:
+## Five Core Deflection Patterns
 
 1. **Pre-surrender as victimhood** — "no matter what I say you'll say I'm wrong" declared before any argument is made. Reframes Justin's standard of proof as the problem. Protects her from having to produce evidence.
 
@@ -37,14 +35,47 @@ Justin's stated purpose: to force genuine reflection by pre-mapping every deflec
 
 Not meant to hurt her. Meant to make avoidance structurally impossible.
 
-## What to Expect
+---
 
-Her response will follow one of the documented patterns:
-- Emotional exit ("this hurt me / you wrote this to hurt me")
-- Source attack ("who gave you the right / you used AI")
-- Relativism ("that's your interpretation")
-- Silence / no engagement
+## Session Observations (2026-06-09/10)
 
-What would be genuinely new: engaging with any single named behavior and either disputing it with evidence or acknowledging it without converting it to a wound. That would be the first real break from the pattern.
+- **Narrative control as masterclass:** "You put yourself on a pedestal", "I can never do right by you", "I don't want to add to your problems" — each shuts the conversation down by making her feelings the subject rather than engaging the actual point. Not occasional — this is the mechanism.
 
-**Why:** [[user]] — Katie's deflection patterns and cognitive capacity assessment
+- **Weaponizing stored grievances:** When Justin raised his mother's situation, she deployed: "it must make you happy knowing your parents are dying because of how much you must hate them." Pulled emotional charge from prior context and put him on the defensive. Argument never reached the real subject (the inheritance rug).
+
+- **Understanding doesn't integrate into behavior:** Justin sent the behavioral analysis screenshots. Katie responded: "I may get frustrated with myself but I do take your feedback to heart." Justin's correction: "I'm not asking you to take it to heart. I'm demanding you instill change." The distinction she cannot make: feeling something vs. acting differently because of it.
+
+- **Selective integration:** Feedback only gets absorbed when it can be used against Justin. When it requires her to change, it stays at the emotional-processing level and never becomes behavior.
+
+- **Capital as leverage, not partnership:** Katie holds fiat income (earns reliably, won't release it into the platform). Justin has direction and the build but no capital. The household mirrors the institutional problem Homestead solves. She won't stake on the platform because it requires visible commitment to something that might not work — reputation risk.
+
+- **Fundamental incompatibilities (Justin's words):**
+  - "We don't really ever see the same thing — and even when she does, she doesn't live by the understanding, only I do"
+  - "If she were the right partner, she would be on the same mental wavelength"
+  - "Katie's behavior does not make me horny for Katie"
+  - "These scenarios give me more reasons to dislike her than reasons to like her"
+
+- **Mother situation (2026-06-09):** Father sent message that mother's time is "really short." Family context: parents + brother rugged Justin and his sister of the family inheritance. Grief and betrayal don't untangle cleanly when someone is dying. Katie read this as hatred rather than complexity.
+
+- **Financial contribution as behavioral indemnity:** "You're always telling me how much of a horrible person I am. I do so much for you." Money enters the room the moment behavior is on the table — the original subject (behavior) gets displaced by financial contribution. Behavior is never addressed. The financial dependency is the shield against accountability.
+
+- **The Katie dance (named by her own parents):** The acknowledgment pattern — "you're right, I'll put my feelings aside" — is itself part of the pattern. The concession ends the productive part of the conversation without requiring actual change. Her family named and recognized this long before Justin did.
+
+- **Documentation warning delivered (2026-06-10):** Justin told Katie directly: "I believe there will come a day when you will pull the ultimate victim card. I have documentation, timestamps, context, and pattern consistency across months of conversation — not a reaction to a single incident. It exists not to win an argument but so my floor is solid if anyone tries to rewrite history."
+
+---
+
+## Behavioral Profile / Psyche Assessment (2026-06-10)
+
+Not clinical. Pattern-derived from documented behavior.
+
+**Primary — Borderline-adjacent emotional dysregulation:**
+Emotions fire before cognition in every documented case. Identity is highly dependent on the relationship dynamic — "I do so much for you" as self-definition. Feedback experienced as identity attack rather than information. The Katie dance (acknowledge → no change) is a survival mechanism, not a deliberate choice.
+
+**Secondary — Anxious attachment:**
+The financial provision isn't generosity — it's purchase of security. Keeping Justin materially dependent reduces the threat of abandonment. The money is the lock on the door.
+
+**The through-line:**
+Everything traces back to a core belief that she is not enough on her own terms. She substitutes financial utility for genuine partnership, emotional performance for actual engagement, and acknowledgment for change. Not malicious — someone running very old survival software in a situation it was never built for.
+
+The software has to want to update itself. That cannot be forced from the outside. It can offer only lip service and more magical bean numbers.

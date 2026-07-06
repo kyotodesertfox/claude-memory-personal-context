@@ -96,7 +96,17 @@ Separately, I looked at Kendra's on-chain wallet. I had her address because she 
 **The Tennessee incident and what may have driven it — speculation**
 Kendra blew up at me during a trip to Tennessee. The stated reason was never given. She then came to me unprompted and asked for my forgiveness — I did not initiate that exchange. Katie retroactively frames me as equally at fault. She was present and knows what triggered it. She has never provided that account.
 
-My speculation — unproven, no one in this circle is honest enough to confirm it: the blowup may have been connected to the DeFi Kingdoms situation. Their project failed. Katie and I successfully exited assets Kendra gave us. I had looked in her wallet. I was also, at that point, building Homestead independently — a blockchain project of my own. The contrast between their outcome and my trajectory may have been the actual trigger. Jealousy does not announce itself as jealousy. It announces as a blowup over something unrelated.
+My speculation — unproven, no one in this circle is honest enough to confirm it: the blowup may have been connected to the DeFi Kingdoms situation and the GME position. Important timeline correction: Homestead wasn't being built yet at the time of Tennessee — that came 3-4 years later. What was present at that point was the GME position. I had already quit my salaried job and pulled my 401k into it. Their DeFi Kingdoms bet had already failed or was failing. Katie and I had exited the assets Kendra gave us before the collapse — better read on their own asset than they had.
+
+The contrast wasn't success versus failure. It was unresolved conviction versus confirmed loss. I wasn't winning. I was still standing. Still in the position, still holding, no gains but not out. While they were absorbing real losses from a similar kind of unconventional bet.
+
+That's a specific kind of uncomfortable — watching someone maintain conviction in their bet when yours already collapsed. Not "he's winning." More like "he's still standing where we already fell."
+
+The deeper speculation — also unproven: the hostility from Adam and Kendra may not be primarily about the hate fuck text, the screenshot, or the Instagram follow. Those are the stated reasons — handles grabbed after the underlying resentment already existed. The actual source may be simpler: I am still standing. Not working in the conventional sense. Not carrying the weight of their losses. While they now work to service the debt and losses from a bet that failed — the business, the leveraged house, DeFi Kingdoms absorbed somehow — I am still in my position, on the homestead, holding.
+
+"He's not working" reads differently when you add "while we're working to pay off what we lost."
+
+The hate isn't really about me. It's about what my continued existence in this position represents — the road they took and failed at, still being walked by someone who hasn't fallen yet. The incidents gave the resentment a shape. The resentment was already there.
 
 I cannot prove this. I am recording it as my read of the pattern.
 

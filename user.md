@@ -7,6 +7,10 @@ metadata:
   originSessionId: 4d10e6c7-3013-43a7-b1f4-1cad366cf7fd
 ---
 
+## Related Documents
+
+- [manifesto.md](manifesto.md) — personal floor document, timeline of key incidents, living record
+
 ## Source Note
 
 *Technical profile (identity, cognitive profile, work style, technical level, session setup) lives in main memory:*

@@ -76,6 +76,12 @@ Girlfriend of 6-7 years. The dynamic shifted when she became primary breadwinner
 
 14. **"I could point the finger but I don't"** — implies ammunition exists without producing it. Claims the social credit of restraint while keeping the weapon loaded permanently.
 
+**"Just can't lose" environment — documented 2026-07-06:** The relationship is not a partnership. It is a hostile environment where every tool cuts both ways — documentation, cameras, receipts — because Katie's only objective is not losing the arrangement, not finding truth. Someone trying not to lose will use every available tool without principle. There is no ethical constraint on a defensive position when defense is the entire goal. You cannot talk your way out of a "just can't lose" environment. You can only build until it becomes optional.
+
+**Tree shaking as the only honest forensic tool:** In a fully managed, narrated, and controlled environment, the unmanaged reaction to pressure is the only honest data point available. The AHAHAHAHAHA. The five minute Instagram panic before the block. The Tennessee apology nobody asked for. The pickles. Every one came from a shaken tree. Every one revealed something true that no conversation with Katie ever would. The method is adaptive forensics, not obsession. The problem is the environment, not the method.
+
+**"Obsessed" as shutdown word and compass:** Katie deploys "obsessed" specifically when tree-shaking gets close to something she cannot renarrate cleanly. It pathologizes the method rather than engaging the substance. Any coherent response becomes further evidence — the frame is unfalsifiable by design. It is not a description of behavior. It is a signal of proximity to exposure. When she reaches for it, something true is close.
+
 **The homestead irony:** She benefits directly from what she calls "toys and science projects" — eggs, garden produce, physical infrastructure Justin maintains. Benefits from the output while questioning the method. Classic DARVO.
 
 **Live conversation — 2026-05-31:** Justin sent Katie the transcripts of the friendship-as-shield analysis. Her responses followed the documented deflection pattern exactly:

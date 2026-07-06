@@ -107,6 +107,23 @@ That connection would also be structurally destabilizing to the current arrangem
 
 Katie claims to talk about, share, and defend the platform to the people around her. The observable output of that advocacy does not match the claimed intent. She understands the platform precisely when she chooses to — she described it unprompted as "a new currency and exchange system for goods." When allegedly advocating for it, nothing in that circle has engaged with it seriously. Defending something with a wet noodle and defending it with a sword produce different outcomes. She knows the difference. The question is which one she is actually choosing.
 
+**The Kendra contradiction Katie cannot resolve — documented 2026-07-06**
+Katie holds two simultaneous framings of Kendra that directly contradict each other, deployed depending on what the moment requires:
+
+- When justifying Adam's aggression: Kendra is "Adam's woman" who needs protecting from me. She is contained, managed, dependent on Adam's protectiveness.
+- When shutting down the "prove it" challenge: Kendra is a free agent who independently wants nothing to do with me and has made that choice herself.
+
+Both cannot be true simultaneously. A free woman doesn't need a man to protect her from a follow request on Instagram. A woman who needs that level of protection isn't making free choices. The contradiction exposes the actual situation: Kendra isn't choosing distance. She is being managed into it. The blocks are the arrangement's decision, not hers.
+
+Katie deploys whichever frame serves the conversation without noticing they cancel each other out. She doesn't experience contradiction as a problem — internal consistency is never the standard. The standard is whether it serves the current moment.
+
+**"Obsessed" as shutdown mechanism and compass — documented 2026-07-06**
+When tree-shaking produces something real — when the pressure gets close to something Katie cannot renarrate cleanly — she deploys the word "obsessed." It pathologizes the method rather than engaging the substance. The content gets dismissed and the messenger gets discredited. Any coherent response becomes further evidence of the obsession. The frame is designed to be unfalsifiable.
+
+"Obsessed" is not a description of behavior. It is a signal of proximity to exposure. The intensity of the shutdown maps to the size of the threat underneath it. It appears specifically when the shaking produces something real — not randomly. That makes it a compass: when she reaches for "obsessed," something true is close.
+
+The counter is not an argument. It is recognizing the word for what it is and continuing anyway.
+
 **The hate fuck text**
 Katie sent me unprompted: *"you need a good hate fucking"* — her suggestion, with a laughing emoji. Before I forwarded it to Kendra, Katie asked me not to send it. I sent it anyway. Adam read it first. He directed his anger at me without questioning why his own girlfriend had written and sent it. Katie's response when confronted: first, that I "goaded" her into saying it. Later, as of 2026-07-06, that it was a "joke."
 

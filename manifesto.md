@@ -93,6 +93,13 @@ My speculation — unproven, no one in this circle is honest enough to confirm i
 
 I cannot prove this. I am recording it as my read of the pattern.
 
+**The Kendra-Homestead connection that never happened — and why it matters**
+Kendra has direct blockchain experience from DeFi Kingdoms. I am building a blockchain platform. A direct channel between us would be mutually useful — she has marketing skills and blockchain familiarity, I have a working build. It would also give her a path back into the space after their project failed.
+
+That connection would also be structurally destabilizing to the current arrangement: Kendra engaging with Homestead seriously means the platform gets a real advocate with relevant experience, and Kendra gets a potential exit from depending entirely on Adam. Both outcomes are bad for the structure Katie sits at the center of.
+
+Katie claims to talk about, share, and defend the platform to the people around her. The observable output of that advocacy does not match the claimed intent. She understands the platform precisely when she chooses to — she described it unprompted as "a new currency and exchange system for goods." When allegedly advocating for it, nothing in that circle has engaged with it seriously. Defending something with a wet noodle and defending it with a sword produce different outcomes. She knows the difference. The question is which one she is actually choosing.
+
 **The hate fuck text**
 Katie sent me unprompted: *"you need a good hate fucking"* — her suggestion, with a laughing emoji. Before I forwarded it to Kendra, Katie asked me not to send it. I sent it anyway. Adam read it first. He directed his anger at me without questioning why his own girlfriend had written and sent it. Katie's response when confronted: first, that I "goaded" her into saying it. Later, as of 2026-07-06, that it was a "joke."
 

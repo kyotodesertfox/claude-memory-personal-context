@@ -73,11 +73,18 @@ As of 2026-05-19, I identified that a record appears to be under active construc
 ## 5. Key Incidents and Context
 
 **GME — the investment Katie introduced**
-Katie brought $GME to my attention as an investment opportunity. I had no prior awareness of it. I researched it independently, made the decision, quit my salaried job, and pulled my 401k into the position. Katie knew all of this at the time. She was supportive when it happened. She understood the reasoning.
+Katie brought $GME to my attention as a market opportunity — a financial play, nothing more. I had no prior awareness of it. I researched it independently, found the thesis sound, made the decision, quit my salaried job, and pulled my 401k into the position. Katie knew all of this at the time. She was supportive when it happened. She understood the reasoning.
+
+The deeper thesis — corrupt markets, institutional manipulation, naked short selling, what GameStop represented as a pressure point against elite financial systems — came after I was already in. Learned while holding. The holding became about something larger than the original trade once that picture came into focus.
 
 The position is now in uncertain territory — no one knows the outcome. In emotionally stable moments, she acknowledges the logic of the bet. In moments of emotional instability or when leverage is needed, she deploys: *"you made that choice"* — as though it was a unilateral decision she had no part in introducing. She is both the person who handed me the map and the person who now blames me for the route.
 
 This is the actual reason I am not currently employed. Everyone in this circle — including Adam and Kendra — knows this. The "not working / not providing" framing is not confusion about the facts. It is a chosen narrative.
+
+**The child support exposure and how it connects to GME:**
+Unpaid child support arrearages exist. I am not hiding — I am not updating authorities on my location, which is a deliberate choice while the position remains unresolved. The GME position resolving was always the intended remedy — not the original motivation for making the bet, but a downstream consequence that would clear the obligation and get clean.
+
+Katie knows this exposure exists. When emotionally elevated, she deploys it as a threat: *"I should let the Government know where you are."* She introduced the investment. She was supportive when I committed to it. She now threatens to trigger consequences before it can pay off. She handed me the instrument and holds the ability to call in enforcement before it works.
 
 **DeFi Kingdoms — their failed bet, and what followed**
 Adam and Kendra invested significantly in DeFi Kingdoms, a blockchain gaming/DeFi project. The project eventually failed. During the period when it was still active, Kendra gave Katie and me some of her in-game assets for free — to play with, level up, and learn blockchain.

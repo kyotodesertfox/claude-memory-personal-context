@@ -200,3 +200,16 @@ I am a patient man when there is a bluff to call.
 *New entries go here. Significant entries migrate into the sections above over time.*
 
 **2026-07-06** — Document started. GME context added — Katie introduced the investment, was supportive at the time, now weaponizes it. DeFi Kingdoms context added — Adam and Kendra's failed bet, Kendra's assets given to us, our exit, wallet lookup incident, Tennessee speculation. Adam's physical threat recorded. "Not working/not providing" confirmed as active narrative being fed to Adam and Kendra. "Joooooke" reframe of hate fuck text noted.
+
+**2026-07-08** — Major excavation of the trifecta arrangement. Key admissions extracted from Katie in writing with timestamps:
+
+- Counter offer made: Kendra gets unconditional access to the home at her discretion, no conditions, no routing through Katie. Katie's response: "she's always welcome" - managed substitution keeping her hand on the door. Screenshot or Adam was the binary. She chose neither, deflected all day.
+- Katie confirmed she was the relay, not a bystander, in the coordinated blocking campaign. Her own sequence: Kendra blocked first, told Adam, Adam called Katie, Adam chewed Katie out, Katie screamed at Justin to unfollow or Adam would fire her. Confirmed with "Yes" in writing.
+- "Any man would be pissed" at the hate fuck forwarding - collapsed into "you betrayed MY trust" the moment authorship was challenged. The grievance was never about Kendra's comfort or Adam's honor. It was about Katie's control over what leaves the room.
+- Adam directed every ounce of anger at the forwarder and left the author completely untouched. This was named directly. Katie has not responded to it.
+- "He is my friend, but also my boss" - Katie named the dependency herself.
+- "I just wasn't ready for you to see why yet - but now you do" - confirmed she understood the full architecture before today. Was managing Justin's understanding of it, not confused by it.
+- Adam fights through proxies because a direct conversation removes his authority. A man with a real argument doesn't need his fists. Katie confirmed: "nor his guns."
+- Katie applied 2A principle selectively - shamed Justin for being ready to defend his home against a stated violent threat, while invoking fear that he wouldn't protect her. Right without principle.
+- "Principle" - Justin's one word answer to why he disturbs a system that benefits him. Katie had no counter.
+- The loop closed on her own words. Six years of managed architecture excavated in one text thread. Everything timestamped.

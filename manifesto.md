@@ -201,6 +201,23 @@ I am a patient man when there is a bluff to call.
 
 **2026-07-06** — Document started. GME context added — Katie introduced the investment, was supportive at the time, now weaponizes it. DeFi Kingdoms context added — Adam and Kendra's failed bet, Kendra's assets given to us, our exit, wallet lookup incident, Tennessee speculation. Adam's physical threat recorded. "Not working/not providing" confirmed as active narrative being fed to Adam and Kendra. "Joooooke" reframe of hate fuck text noted.
 
+**2026-07-08 — The Loop Closed**
+
+The manifesto was started because a record was being constructed from the other side - filtered through one narrator, delivered to a limited audience that had never had direct access to Justin's. Today that narrator confirmed the architecture in writing.
+
+The loop: Katie has been the one keeping Kendra away. Not Adam's anger. Not Kendra's independent choice. Katie - the relay, the gatekeeper, the narrator, the one who manages what leaves the room and what stays in it.
+
+What she confirmed today in writing with timestamps:
+- She was the relay in the coordinated blocking campaign. Not a bystander.
+- She defended all day that Adam was never angry at her for writing the hate fuck text. He was. She apologized to him. She knew this the entire time she was defending the opposite position - redirecting his anger toward Justin and away from herself.
+- "They just want you to leave them alone" while Adam announced he wanted to come over and assault Justin. Two frames held simultaneously. Collapsed when separated.
+- "He is my friend, but also my boss" - dependency named by her.
+- "I just wasn't ready for you to see why yet - but now you do" - she understood the full architecture before today. Was managing Justin's understanding of it, not confused by it.
+- The grievance shifted from Adam's honor to Katie's feelings the moment authorship got too close. It was never about Kendra's comfort or Adam's honor. It was about Katie's control over what leaves the room.
+- "You're managing EVERYTHING" - her response was "lol wrong try again." The thread proved it.
+
+The reason the manifesto was started: a record being constructed from the other side. Today the narrator of that record confirmed the most load-bearing pieces of it herself. In writing. Timestamped. Unprompted.
+
 **2026-07-08** — Major excavation of the trifecta arrangement. Key admissions extracted from Katie in writing with timestamps:
 
 - Counter offer made: Kendra gets unconditional access to the home at her discretion, no conditions, no routing through Katie. Katie's response: "she's always welcome" - managed substitution keeping her hand on the door. Screenshot or Adam was the binary. She chose neither, deflected all day.

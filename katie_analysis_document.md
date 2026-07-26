@@ -172,3 +172,19 @@ Her bet was on dependency. She got a builder.
 "You invested in me being a loser without realizing I am one competent mother fucker." Her response: silence, then - "when this breaks out - its over."
 
 She already knows. The gates exist to prevent the breakout. When it happens everything downstream - the arrangement, the narrative, the dependency - loses its floor. That is why the gates point the way they do.
+
+---
+
+## July 26 - The Closing
+
+After hours of argument, documentation, tears, and "damn I'm a fool" - she closed with "Best of luck" and "I wish you the best."
+
+She defined love as provision through everything. "Every 'fuck you', every 'I hate you', I loved you through all of that." The selection mechanism ran exactly as documented - dollar access, provision, management. Not chosen consciously. Trained.
+
+Justin sent her the post: "The women aren't selecting for bad men; they're selecting for the signal the institution trained them to read. Dollar access." And "I built a road that doesn't have a booth."
+
+Her response: "Best of luck."
+
+She chose the road with the booth. After the tears. After the admission. After seeing herself in the Circuit document she read while living it in real time. The aware demon continues sorting anyway.
+
+The mechanism doesn't stop because you named it. It stops when someone decides to stop running it. She didn't decide that today.

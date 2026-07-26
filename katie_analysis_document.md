@@ -158,3 +158,17 @@ The asymmetry: Justin changed, built, evolved - she calls it betrayal. She staye
 This is why debate with someone unprincipled cannot be honest or in good faith. They use whatever is available - past statements, hypotheticals, emotional reframes, subject changes - not to find truth but to avoid losing. No consistent principle underlies it so no consistent standard can be appealed to. Every argument won produces a new argument on different ground.
 
 The documentation matters more than the debate. The record doesn't negotiate.
+
+---
+
+## The Implicit Contract Named
+
+July 26 closing exchange. After hours of argument, "loss wearing hate's face" broke through. Her response: "I never wanted nor needed to control you." Not a rebuttal - grief. She wasn't arguing the diagnosis. She was arguing what it said about her feelings.
+
+The implicit contract she never stated: the nurturing was investment in a dependency that was supposed to hold. The garden, the platform, the thesis - none of it was supposed to become self-sustaining. A mother loses a child to growth and calls it success. Katie is losing Justin to growth and experiencing it as abandonment because the version of him that needed her is the one she built her identity around.
+
+Her bet was on dependency. She got a builder.
+
+"You invested in me being a loser without realizing I am one competent mother fucker." Her response: silence, then - "when this breaks out - its over."
+
+She already knows. The gates exist to prevent the breakout. When it happens everything downstream - the arrangement, the narrative, the dependency - loses its floor. That is why the gates point the way they do.

@@ -130,3 +130,19 @@ The money buys loyalty without proving it. A stake on the platform proves it wit
 Today she said she doesn't trust the Treasury - that Justin would lock her out. That fear is not about money. It is about position. She has never been on the wrong side of a door before. Adam's arrangement has her embedded - she works for him, she lives through his money, she cannot be removed. The Treasury is territory where Justin controls the keys. The inversion terrifies her.
 
 She is not scared of losing money. She is scared of losing the position that Adam's money has always guaranteed her.
+
+---
+
+## The Objection Stack - Post-Hoc Rationalization
+
+Katie has produced a sequence of objections to staking in the Treasury, none of which are the actual reason:
+
+- Clients don't use crypto - market survey used as proxy for personal belief
+- Loopring died - retroactive apprehension applied to a platform that didn't exist yet. You cannot be apprehensive about using something before it was built
+- Apprehension predates Homestead - revisionism. If the apprehension existed before the platform, it had no object
+- Taiko was birthed from Loopring - factually imprecise (shared founder, not shared architecture or organization), and irrelevant to the question being asked. Introduced as a subject change dressed as a counter-argument
+- She can't stake without clients - conflates personal loyalty with market viability to avoid answering whether she believes in it
+
+Each objection arrives after the previous one fails. The stack is not a position - it is grasping for new reasons that justify a conclusion already reached for reasons she won't state.
+
+The reason is in the documentation. It has Adam's name on it.

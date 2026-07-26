@@ -146,3 +146,15 @@ Katie has produced a sequence of objections to staking in the Treasury, none of 
 Each objection arrives after the previous one fails. The stack is not a position - it is grasping for new reasons that justify a conclusion already reached for reasons she won't state.
 
 The reason is in the documentation. It has Adam's name on it.
+
+---
+
+## On Debating the Unprincipled
+
+Katie used Justin's past stated preference ("I made it extremely clear years ago that I did not want to do my own thing") as a binding commitment against his current direction. Growth is reframed as betrayal. The statement was a snapshot, not a contract - but it serves her narrative by holding him to a version of himself she could manage.
+
+The asymmetry: Justin changed, built, evolved - she calls it betrayal. She stayed static, defended the arrangement, refused to stake - she calls it loyalty. Growth on his side becomes evidence against him. Stagnation on her side becomes virtue.
+
+This is why debate with someone unprincipled cannot be honest or in good faith. They use whatever is available - past statements, hypotheticals, emotional reframes, subject changes - not to find truth but to avoid losing. No consistent principle underlies it so no consistent standard can be appealed to. Every argument won produces a new argument on different ground.
+
+The documentation matters more than the debate. The record doesn't negotiate.

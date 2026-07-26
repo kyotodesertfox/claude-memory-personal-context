@@ -95,3 +95,20 @@ When the logical argument collapsed, she shifted to "/taking advantage of me" - 
 Capital as leverage thread: she raised the garden being "subsidized with ~gasp~ MoNeY" when the argument about tangible output went against her. The funding source was deployed to invalidate the output - if she paid for it, it doesn't count as his production. This loops directly into the documented pattern of financial contribution as behavioral indemnity. Today it extended further: she financed the thing that is replacing her dependency role, then tried to use the financing to negate the replacement.
 
 The zkProof framing applies: the documentation exists independent of what she tells people. The public narrative she manages and the private record are now two separate, verifiable things. Today she confirmed she knows both exist.
+
+---
+
+## July 26 Continued - Physical Escalation and Threat Structure
+
+When the written record became undeniable, Katie escalated physically - attempted to take the phone and control the laptop. Left the room when the camera turned on, repeatedly checked whether she was being recorded, closed the door on exit. Behavior modification under observation is on video with timestamp.
+
+Contradictions produced in the same conversation:
+
+- Claimed recording is a privacy violation, then threatened to use her own message archive as evidence
+- Introduced "dox" and "expose" unprompted as things she's choosing not to do - a threat structured as restraint
+- Said "I'm being the bigger person" about not reciprocating documentation - which requires the documentation to be something she could do, not a wrong she's rising above
+- Claimed passive documentation while simultaneously arguing Justin's active documentation is a violation
+
+The firearm brandishing is in her message history by her own admission of having "all the messages."
+
+The asymmetry she's defending: she cannot share what she sends him, and he cannot record what she does to him. That leaves her with no accountability and no witness.

@@ -79,3 +79,19 @@ The financial provision isn't generosity — it's purchase of security. Keeping 
 Everything traces back to a core belief that she is not enough on her own terms. She substitutes financial utility for genuine partnership, emotional performance for actual engagement, and acknowledgment for change. Not malicious — someone running very old survival software in a situation it was never built for.
 
 The software has to want to update itself. That cannot be forced from the outside. It can offer only lip service and more magical bean numbers.
+
+---
+
+## July 26 - Public Defense / Private Attack Confirmation
+
+Katie admitted today that she defends Justin publicly while running a different narrative privately: "I tell people how great you are, even if they think you're treating me like shit." This is not an isolated admission - it threads directly into the existing documented pattern.
+
+The gate mechanism operates on two tracks simultaneously. Outward: she manages his reputation, vouches for him, positions herself as the loyal defender. Inward: she attacks his character, dismisses his output, denies earned respect, and frames his independence as using her. The two tracks serve the same function - she controls the story in both directions. Publicly she holds the moral credit for standing by him. Privately she holds the accusation as leverage.
+
+This connects to the "I get your game" conversation - she claimed to see the mechanism while running one herself. The respect argument earlier today followed the same structure: mock the concept of earning respect, then invoke her own financial contribution as the only metric that counts. Input over output. Means over product.
+
+When the logical argument collapsed, she shifted to "/taking advantage of me" - using a slash as a stage direction, narrating victimhood rather than engaging the point. This is the tell. The slash signals she has switched from argument to performance. It has appeared before.
+
+Capital as leverage thread: she raised the garden being "subsidized with ~gasp~ MoNeY" when the argument about tangible output went against her. The funding source was deployed to invalidate the output - if she paid for it, it doesn't count as his production. This loops directly into the documented pattern of financial contribution as behavioral indemnity. Today it extended further: she financed the thing that is replacing her dependency role, then tried to use the financing to negate the replacement.
+
+The zkProof framing applies: the documentation exists independent of what she tells people. The public narrative she manages and the private record are now two separate, verifiable things. Today she confirmed she knows both exist.

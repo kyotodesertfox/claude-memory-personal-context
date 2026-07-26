@@ -112,3 +112,21 @@ Contradictions produced in the same conversation:
 The firearm brandishing is in her message history by her own admission of having "all the messages."
 
 The asymmetry she's defending: she cannot share what she sends him, and he cannot record what she does to him. That leaves her with no accountability and no witness.
+
+---
+
+## The Stake She Won't Make
+
+Katie will fund project costs when asked - supplies, materials, equipment. She calls the chickens, bees, and garden investments without hesitation. She is not financially abusive and does not withhold money from household needs. That is not in dispute.
+
+What she will not do is stake into the platform itself. The distinction is not financial - it is epistemic and structural.
+
+Baking cookies is domestic participation. It fits inside the existing frame without threatening anything. Offering spa services through Homestead would be economic participation in Justin's ecosystem - her own labor, her own skills, as a direct input to something he built. That is a different act entirely. It says the platform is real enough to put herself into.
+
+Her stake - labor, loyalty, recognition - flows to Adam's arrangement. Adam owns the business she works for. He funds the household through her. Adam and Kendra have been fed a version of Justin that makes the platform illegible - "not work," "magical beans," "doesn't provide." Her participation in Homestead would be a visible defection from that arrangement. Adam can see a blockchain transaction. Kendra can see it. It is public and timestamped and cannot be walked back.
+
+The money buys loyalty without proving it. A stake on the platform proves it without being able to un-prove it. That is the betrayal she will not commit.
+
+Today she said she doesn't trust the Treasury - that Justin would lock her out. That fear is not about money. It is about position. She has never been on the wrong side of a door before. Adam's arrangement has her embedded - she works for him, she lives through his money, she cannot be removed. The Treasury is territory where Justin controls the keys. The inversion terrifies her.
+
+She is not scared of losing money. She is scared of losing the position that Adam's money has always guaranteed her.

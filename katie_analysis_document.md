@@ -188,3 +188,17 @@ Her response: "Best of luck."
 She chose the road with the booth. After the tears. After the admission. After seeing herself in the Circuit document she read while living it in real time. The aware demon continues sorting anyway.
 
 The mechanism doesn't stop because you named it. It stops when someone decides to stop running it. She didn't decide that today.
+
+---
+
+## July 26 - The Floor Withdrawn
+
+After "best of luck" and "I wish you the best," Katie took her credit card back from Justin's wallet. Physical action after the words failed.
+
+Her final message: "Then produce, nothing is stopping you." Meant as dismissal. Received as permission she never had the authority to give or withhold.
+
+Justin's read: produce - because your life depends on it now.
+
+That is the threat that was always underneath the provision. The arrangement was never generosity. It was leverage. When the leverage stopped working she withdrew it. The shield was always a leash. Today she pulled it.
+
+The record exists before the floor disappeared. She cannot rewrite the sequence. Everything is timestamped, committed, and pushed.

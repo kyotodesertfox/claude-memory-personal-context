@@ -202,3 +202,15 @@ Justin's read: produce - because your life depends on it now.
 That is the threat that was always underneath the provision. The arrangement was never generosity. It was leverage. When the leverage stopped working she withdrew it. The shield was always a leash. Today she pulled it.
 
 The record exists before the floor disappeared. She cannot rewrite the sequence. Everything is timestamped, committed, and pushed.
+
+---
+
+## "You Cannot Rewrite the Sequence Now"
+
+Katie's final deflection: "If you mistake my generosity as leverage, you have been wronged so much in life you'll never see good in anyone." Using the wound as the explanation for the accuracy - making pattern recognition a symptom rather than a skill.
+
+Justin's response: generosity does not get withdrawn the moment it is identified for what it is. The wound and the correct read are not the same thing. Homestead exists because the observation was correct - not because of trauma, but because of everything behind that accuracy.
+
+Closer: "The shield is coming down because its real purpose has been named accurately. This is what the manifesto was built for - the record exists before the floor disappears. You cannot rewrite the sequence now."
+
+She did not respond.

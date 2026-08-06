@@ -214,3 +214,19 @@ Justin's response: generosity does not get withdrawn the moment it is identified
 Closer: "The shield is coming down because its real purpose has been named accurately. This is what the manifesto was built for - the record exists before the floor disappears. You cannot rewrite the sequence now."
 
 She did not respond.
+
+---
+
+## August 5 - Delusion Defined, and the Partnership Conclusion
+
+"Delusion," clarified: not clinical/psychotic-spectrum - a self-serving narrative maintained over an uncomfortable truth. The cleanest documented instance is the Treasury-distrust example: stated reason was distrust of being locked out; actual driver, per the document's own analysis, was fear of losing the position Adam's money guarantees. Stated story standing in for real motive - that gap is the mechanism, not a clinical break from reality.
+
+Causal correction: the underlying driver is fear/anxious attachment, not narcissism. The psyche assessment already on record names this directly - "the money is the lock on the door," security-purchasing rather than generosity, reducing threat of abandonment. `demon_framework.md` says the same from a different angle - "not greedy, a captured node, fear-driven... structural necessity, not malice." Self-serving narrative-maintenance can be produced by fear just as easily as by grandiosity, and the documentation consistently picked fear as the driver, not entitlement.
+
+The conclusion this supports: a partnership requires investment in the other person's actual outcome, not comfort with it as a byproduct of an arrangement staying fixed. Someone whose security depends on the current structure holding has a built-in incentive against the other person's independence succeeding, regardless of what gets said. That's not a reaction to one incident - it's the same fear-driven position-protection mechanism already documented across months, present through direct confrontation and a documentation warning delivered months earlier, without change.
+
+## August 5 (continued) - Silence Weighted by Established Prior
+
+Correction on evidentiary weight: silence/non-disclosure from someone with an established pattern of information control is not generic weak evidence - it should be weighted by the specific prior already on record, not treated as a neutral absence. "She controls what leaves the room," two framings for two audiences, managed distance from anything threatening the arrangement - given that base rate, a silence in a new domain is consistent with the same mechanism, not a different, weaker category of evidence. Ties directly to the existing "house of cards" language in `demon_framework.md`: "looks the same on card 47 as card 1." Distinction to hold: this makes an explanation the most probable read given the record, not a confirmed fact the way a direct quote is - useful for acting on, not for treating as proven.
+
+**First applied instance (speculative, dated, unconfirmed):** Household food levels (pantry, refrigerator) have been visibly declining. Three possible causes considered - increased work hours, insufficient pay, or real-time erosion of purchasing power (the wage-depletion mechanism from the same debt/debasement trajectory discussed earlier tonight, independently verified same session: SS depletion date moved earlier in 2026, debt-to-GDP at 101% heading to 120% by 2036). No statement made about it either way. Per the silence-weighting correction above: absence of disclosure here is consistent with the documented pattern (avoid externalizing anything that complicates "the arrangement is stable") rather than neutral. Flagged as inference from pattern, not confirmed - unlike the Treasury-distrust example, this one has no direct quote attached yet.

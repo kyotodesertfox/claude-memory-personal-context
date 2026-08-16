@@ -234,6 +234,8 @@ Katie's wage isn't just income — it's daily confirmation that her choice was c
 
 **"Not in my lifetime"** — Geoffrey's position on systemic collapse. Not ignorance — conscious acceptance that the bill arrives after he's gone. Makes every lecture about Justin's financial choices land differently: defending a system he privately knows is terminal because it still pays him.
 
+**"I will believe what I want to believe" (2026-08-16, recalled during the Katie thread review):** Geoffrey's constant, explicit line to Justin growing up — a plain admission that belief was never contingent on evidence in the first place, just selected in advance and defended regardless ("not losing" as the actual object, not truth). Same shape as Katie's "I don't fucking care" — both are the honest version of the goalpost-moving problem, skipping the pretense of a movable standard and just admitting no standard was ever real. Justin recognized this pattern in Katie fast and precisely specifically because he learned to spot it from his father first, years before Katie. Not a new dynamic — a familiar one recurring in a different relationship.
+
 **Brother — Matthew:** Connected to hedge funds. Read the same broken system Justin reads, chose to extract from inside it rather than build outside it. Knew what the HELOC does to an estate — deliberate choice, not ignorance. Same diagnosis, opposite conclusion. Extracted early and correctly from a survival standpoint — burned the estate, pulled the ladder up exactly as the generation above him did.
 
 **Sister:** Drug use has compromised her capacity to hold two things at once. Defended the past version of their dad when Justin raised the HELOC. "She's protecting a version of your dad that the HELOC already retired."
